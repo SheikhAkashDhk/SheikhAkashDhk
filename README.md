@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SheikhAkashDhk. I'm a freelancer. A great team player.
+- 👀 I’m interested in ...Lead Generation, Cold calling and all kind of IT related work. 
+- 🌱 I’m currently learning ...Digital Marketing & SEO
+- 📫 How to reach me ... Email : sheikhakashdhk@gmail.com
